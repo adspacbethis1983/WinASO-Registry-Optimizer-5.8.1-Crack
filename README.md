@@ -1,0 +1,1 @@
+# WinASO-Registry-Optimizer-5.8.1-Crack
